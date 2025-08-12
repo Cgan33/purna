@@ -1,2 +1,1 @@
-# purna
-deniz abi purnaya bas
+deniz abi kornaya basa
