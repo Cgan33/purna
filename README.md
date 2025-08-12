@@ -1,1 +1,1 @@
-deniz abi kornaya basa
+I love chocolate people
